@@ -11,6 +11,7 @@ i couldnt really bring myself to use unity again without feeling.. off.
 basically, i cant take it seriously again.
 
 the long load times, the accounts, the comparatively excessive stuff you have to sift through, the huge project file size, whatever.
+
 i assume this is the same feeling people with relationships have when having to suddenly work with their ex boyfriend/girlfriend
 
 also i absolutely despise themes and prompts, as i feel that they hinder my creativity than anything. 
